@@ -19,6 +19,7 @@ BOOKS I WANT TO READ
 - **Deep Work** by *Cal Newport*
 - **Range: Why generalist Triumph in a Specialized World** by *David Epstein* 
 - **So Good They Can't Ignore You: Why Skills Trump Passion in the Quest for Work You Love Hardcover** by *Cal Newport*
+- **Outwitting the devil** - *Napoléon Hill*, I recommend think and grow rich and success through a positive mental attitude by the same author. You can download here https://b-ok.cc/s/Napoleon%20hill
 
 # PHILOSPHY++
 - **Objectivism: The philosophy of Ayn Rand** by *Ayn Rand*
