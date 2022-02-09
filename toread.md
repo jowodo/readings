@@ -57,6 +57,13 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - *Samuel R. Delany*
 - *Ramatoulie Bobb*
 
+# AFROCENTRISM 
+- **Nation Nègres et Culture** (1954) by *Cheikh Anta Diop* black origin of egyptian culture
+- **Cheikh Anta Diop ou l´honneur de penser (Cheikh Anta Diop oder die Ehre des Denkens)** by *Jean Marc Ela* 
+- **Black Athena – The Afroasiatic Roots of Classical Civilizatio** by *Prof. Martin Bernal* 
+
+
+
 # FILMS
 - **Space is the Place** (1973) *Sun Ra*
 - **Pumzi: The outside is dead** by *Wanuri Kahiu*
