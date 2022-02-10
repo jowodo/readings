@@ -72,11 +72,11 @@ AFROCENTRISM
 
 AFRO # Remi Tchokothe
 ---------------------
-- Scholastique Mukasonga - Cockroaches
-- Leseprobe aus Cameroon: Helme Blume - Gesang der Verlorenen # rechte hand linke schulter test
-- All Poor Together Paperback – January 1, 2000 by John Hollaway
-- Murambi, The Book of Bones
-- “Shake hands with the Devil” by Romeo Dallaire
+- *Scholastique Mukasonga* - **Cockroaches**
+- Leseprobe aus Cameroon: *Helme Blume* - **Gesang der Verlorenen** # rechte hand linke schulter test
+- **All Poor Together** Paperback – January 1, 2000 by *John Hollaway*
+- **Murambi, The Book of Bones** by  *Boubacar Boris Diop*
+- **Shake hands with the Devil** by *Romeo Dallair*
 - Buchhandlung biblioblox 
 - Buchhandlung Afrieurotext, wien
 - https://o94.at/programm/sendereihen/re-membering-rwanda
