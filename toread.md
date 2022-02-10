@@ -63,6 +63,7 @@ BOOKS
 - **An Unkindness of Ghosts** by *Rivers Solomon* (sustained abuse nd violence lead to? and conformity also to gender)
 - *Samuel R. Delany*
 - *Ramatoulie Bobb*
+- **Snow Crash** - Neal Stephenson (USA,1992) metaverse
 
 AFROCENTRISM 
 ------------
