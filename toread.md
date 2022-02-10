@@ -63,6 +63,18 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Cheikh Anta Diop ou l´honneur de penser (Cheikh Anta Diop oder die Ehre des Denkens)** by *Jean Marc Ela* 
 - **Black Athena – The Afroasiatic Roots of Classical Civilizatio** by *Prof. Martin Bernal* 
 
+# AFRO # Remi Tchokothe
+- Scholastique Mukasonga - Cockroaches
+- Leseprobe aus Cameroon: Helme Blume - Gesang der Verlorenen # rechte hand linke schulter test
+- All Poor Together Paperback – January 1, 2000 by John Hollaway
+- Murambi, The Book of Bones
+- “Shake hands with the Devil” by Romeo Dallaire
+- Buchhandlung biblioblox 
+- Buchhandlung Afrieurotext, wien
+- https://o94.at/programm/sendereihen/re-membering-rwanda
+
+
+
 
 
 # FILMS
