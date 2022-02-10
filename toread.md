@@ -3,7 +3,8 @@ BOOKS I WANT TO READ
 - **Was weisse menschen nicht ueber rassismus hoeren wollen aber wissen sollten** - *Alice Haster*  
 - **Snow Crash** -  *Neal Stephenson*  
 
-# MUSIC BOOKS
+MUSIC BOOKS
+-----------
 - **Theory of Harmony**, **Counterpoint** and **Fundamentals of Composition** by *Arnold Schoenberg* - a contemporary composer, the first 2 books will give you a wealth of knowledge that can pretty soon teach how to compose entire symphonies. 
 - **6 Steps to Songwriting Success** - *Jason Blume*, a good read with some real gems.
 - **Mastering Audio: the art and science** by *bob katz*
@@ -12,7 +13,8 @@ BOOKS I WANT TO READ
 - **Electronic And Computer Music** by *Peter Manning* is a good read, though very advanced for me in some places. It deals with the very roots of electronic composition and is relevant to anyone here who uses a computer to make any sort of sound.
 - **Basic Effects and Processors** (Basic Series) - *paul white*
 
-# SELF IMPROVEMENT 
+SELF IMPROVEMENT 
+----------------
 - **Think and Grow Rich** by *Napoleon Hill*
 - **Rich Dad, Poor Dad** *Robert T. Kiyosaki* - If I was on my death bed and had to pass on last minute advice, it would be to read this book.
 - **Can't Hurt Me** by *David Goggins*
@@ -21,11 +23,13 @@ BOOKS I WANT TO READ
 - **So Good They Can't Ignore You: Why Skills Trump Passion in the Quest for Work You Love Hardcover** by *Cal Newport*
 - **Outwitting the devil** - *Napoléon Hill*, I recommend think and grow rich and success through a positive mental attitude by the same author. You can download here https://b-ok.cc/s/Napoleon%20hill
 
-# PHILOSPHY++
+PHILOSPHY++
+-----------
 - **Objectivism: The philosophy of Ayn Rand** by *Ayn Rand*
 - **The Akan Doctrine of God** by *J.B. Danquah* 
 
-# SCIFI BOOKS
+SCIFI BOOKS
+-----------
 - **Neuromancer** (1984) *William Gibson* (Nebula, Hugo, Philip K Dick awards)
 - **The Difference Engine (1988)** *William Gibson, Bruce Sterling* (steam punk)
 - **2001 A Space Odyssey**+sequels *Arthur C. Clarke*
@@ -38,9 +42,11 @@ BOOKS I WANT TO READ
 - **Electric sheep**
 
 
-## AFRO FUTURISM
+AFRO FUTURISM
+=============
 WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
-# BOOKS
+BOOKS
+-----
 - **Lions Blood** by *Steven Barnes*, alternate history
 - **Wild Seed** (1980) by *Octavia E. Butler*
 - **Black no more** (1931) *George S. Schuyler*
@@ -58,12 +64,14 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - *Samuel R. Delany*
 - *Ramatoulie Bobb*
 
-# AFROCENTRISM 
+AFROCENTRISM 
+------------
 - **Nation Nègres et Culture** (1954) by *Cheikh Anta Diop* black origin of egyptian culture
 - **Cheikh Anta Diop ou l´honneur de penser (Cheikh Anta Diop oder die Ehre des Denkens)** by *Jean Marc Ela* 
 - **Black Athena – The Afroasiatic Roots of Classical Civilizatio** by *Prof. Martin Bernal* 
 
-# AFRO # Remi Tchokothe
+AFRO # Remi Tchokothe
+---------------------
 - Scholastique Mukasonga - Cockroaches
 - Leseprobe aus Cameroon: Helme Blume - Gesang der Verlorenen # rechte hand linke schulter test
 - All Poor Together Paperback – January 1, 2000 by John Hollaway
@@ -77,20 +85,24 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 
 
 
-# FILMS
+FILMS
+-----
 - **Space is the Place** (1973) *Sun Ra*
 - **Pumzi: The outside is dead** by *Wanuri Kahiu*
 - **Afornauts** (2014) Sambia sending Africans to the moon
 - [https://en.wikipedia.org/wiki/List_of_black_Academy_Award_winners_and_nominees]
-# PLAYS
+PLAYS
+-----
 - **Enough VO5 from the universe** by *Melanie Maria Goodreaux* queer black god in fut
-# PAPERS & AUTHORS
+PAPERS & AUTHORS
+----------------
 - *Alondra Nelson* (Anthropologist)
 - *Koto Asian*
 
 
 
-# MOVIES 
+MOVIES 
+------
 - *Berry Jenkins* (black)
 	- Moonlight (2016 LGBT drama)
 	- If Beale Street Could Talk (2018 James Baldwin novel)
@@ -101,7 +113,9 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - Ma Rainey's Black Bottom (2020, by *August Willson* 20th century African-American experience)
 - The color purple 
 - **The Last Angle of History** by *John Akomfrah*, 1996 experimental docu by Ghanian British film maker about history and influence of afrofuturism.
-## SCIFI MOVIES
+
+SCIFI MOVIES
+============
 - **Westworld** filmf rom the seventies 
 - **Sunshine** (2007)
 - **12 Monkeys** (1995)
@@ -138,7 +152,8 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Predator** (1987)
 - **Dark City** (1998)
 - **Planet of the Apes** (1968) Director Franklin J. Schaffner *Pierre Boulle*
-# FUTURE TECH
+FUTURE TECH
+-----------
 - **Gattaca** (1997)
 - **The Running Man** (1987)
 - **The Truman Show** (1998)
@@ -153,14 +168,16 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **A Clockwork Orange** (1971)
 - **The Prestige** (2006) Director: Christpher Nolan
 - **Interstellar** (2014) Director: Christpher Nolan
-# SURPRESSION
+SURPRESSION
+-----------
 - **The Hunger Games** (2012)
 - **Fahrenheit 451** (1966) *Ray Bradbury*
 - **V for Vendetta** (2006)
 - **Brazil** (1985)
 - **Alphaville** (1965)
 - **Metropolis** (1927) Director: Fritz Lang
-# ALTERED HUMAN EXPERIENCE/ CONCIOUSNESS
+ALTERED HUMAN EXPERIENCE/ CONCIOUSNESS
+--------------------------------------
 - **Strange Days** (1995) we can share memories
 - **Altered States** (1980)
 - **eXistenZ** (1999)
@@ -207,7 +224,8 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **The Island of Doctor Moreau** (1996)  *H.G. Wells*
 - **The Invisible Man** (1933) *H.G. Wells*
 
-# SCIish SERIES
+SCIish SERIES
+-------------
 - **Lost in Space** (2018-)
 - **Children of the Whales** (2017-)
 - **The OA** (2016-)
@@ -219,12 +237,15 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Sense8** (2015-)
 - **Daredevil** (2015-)
 
-## DOCUS
+DOCUS
+=====
 
-# SERIES
+SERIES
+------
 - The man in the high castle (what would the future bring if the nazis won ww2 (40 episodes)
 
-## BLACK ARTS MOVEMENTS (BAM)
+BLACK ARTS MOVEMENTS (BAM)
+==========================
 - **The Negro Artist and the Racial Mountain** (1926) *Langston Hughes*
 - **The Notes of a Native Son** (1955) *James Arthur Baldwin*
 - **The Chrisis of the Negro Intellectual** (1967) *Harold Cruse*
