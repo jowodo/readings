@@ -81,6 +81,7 @@ AFRO # Remi Tchokothe
 - Buchhandlung biblioblox 
 - Buchhandlung Afrieurotext, wien
 - https://o94.at/programm/sendereihen/re-membering-rwanda
+- **Les Impatientes** 2020 von *Djaili Amadou Amal.*
 
 
 
