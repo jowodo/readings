@@ -266,3 +266,7 @@ BLACK ARTS MOVEMENTS (BAM)
 - **This Child's Gonna Live** (1969) *Sarah E. Wrigth*
 - **If We Must Die**/**Home to Harlem** (1919) *Claude McKay*
 
+Animé + Manga
+==============
+Random chat manhwa Korea webtoon.com
+Tomodachi game manga mangahere.com mangakakalot.com [scrollen]
