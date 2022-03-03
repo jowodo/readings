@@ -270,3 +270,7 @@ Animé + Manga
 ==============
 Random chat manhwa Korea webtoon.com
 Tomodachi game manga mangahere.com mangakakalot.com [scrollen]
+
+## ARTICLES
+- **Facebook's Meta mission was laid out in a 2018 paper declaring 'The Metaverse is ours to lose'** - Salvador Rodriguez
+
