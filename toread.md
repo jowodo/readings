@@ -68,6 +68,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Nation Nègres et Culture** (1954) by *Cheikh Anta Diop* black origin of egyptian culture
 - **Cheikh Anta Diop ou l´honneur de penser (Cheikh Anta Diop oder die Ehre des Denkens)** by *Jean Marc Ela* 
 - **Black Athena – The Afroasiatic Roots of Classical Civilizatio** by *Prof. Martin Bernal* 
+- **Hard times require furious dancing** by *Alice Walker*
 
 ## AFRO # Remi Tchokothe
 - *Scholastique Mukasonga* - **Cockroaches**
