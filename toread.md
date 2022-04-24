@@ -69,6 +69,8 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Cheikh Anta Diop ou l´honneur de penser (Cheikh Anta Diop oder die Ehre des Denkens)** by *Jean Marc Ela* 
 - **Black Athena – The Afroasiatic Roots of Classical Civilizatio** by *Prof. Martin Bernal* 
 - **Hard times require furious dancing** by *Alice Walker*
+- **The civilizations of Africa a history to 1800** by *Christopher Ehret* (UK: University Press of Virginia 2002)
+- **The Oxford Handbook of african archellogy** by *Paul Lane Peter Mitchell* OUP
 
 ## AFRO # Remi Tchokothe
 - *Scholastique Mukasonga* - **Cockroaches**
@@ -86,7 +88,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Pumzi: The outside is dead** by *Wanuri Kahiu*
 - **Afornauts** (2014) Sambia sending Africans to the moon
 - [https://en.wikipedia.org/wiki/List_of_black_Academy_Award_winners_and_nominees]
-j
+
 ### PLAYS
 - **Enough VO5 from the universe** by *Melanie Maria Goodreaux* queer black god in fut
 
