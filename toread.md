@@ -71,6 +71,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Hard times require furious dancing** by *Alice Walker*
 - **The civilizations of Africa a history to 1800** by *Christopher Ehret* (UK: University Press of Virginia 2002)
 - **The Oxford Handbook of african archellogy** by *Paul Lane Peter Mitchell* OUP
+- **The Miseducation of the Negro** by *Dr. Carter G. Woodson* (1933)
 
 ## AFRO # Remi Tchokothe
 - *Scholastique Mukasonga* - **Cockroaches**
