@@ -20,6 +20,7 @@
 - **Range: Why generalist Triumph in a Specialized World** by *David Epstein* 
 - **So Good They Can't Ignore You: Why Skills Trump Passion in the Quest for Work You Love Hardcover** by *Cal Newport*
 - **Outwitting the devil** - *Napoléon Hill*, I recommend think and grow rich and success through a positive mental attitude by the same author. You can download here https://b-ok.cc/s/Napoleon%20hill
+- **The 48 Laws Of Power** by *Green* [[archive]] https://archive.org/details/the48lawsofpower_201912/48%20Laws%20of%20Power%2C%20The%20-%20Robert%20Greene%3B%20Joost%20Elffers/page/n15/mode/2up
 
 ## PHILOSPHY++
 - **Objectivism: The philosophy of Ayn Rand** by *Ayn Rand*
@@ -262,3 +263,10 @@ Tomodachi game manga mangahere.com mangakakalot.com [scrollen]
 ## ARTICLES
 - **Facebook's Meta mission was laid out in a 2018 paper declaring 'The Metaverse is ours to lose'** - Salvador Rodriguez
 
+## SCIENCE 
+- **Elementa** by Euclid (300 BC)
+- **Philosophiæ Naturalis Principia Mathematica** by *Isaac Newton* (1687)
+- **The Wealth of Nations** by *Adam Smith* (1776)
+- **Kritik der reinen Vernunft** by *Immanuel Kant* (1781)
+- **Traité élémentaire de chimie** by *Antoine Lavoisier* (1789)
+- **On the Origin of Species** by Charles Darwin (1859)
