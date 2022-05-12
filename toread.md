@@ -42,7 +42,7 @@
 - **The Time Machine**/**The Island of Doctor Moreau**/**The Invisible Man**/**The War of Worlds** HG Wells
 - **Electric sheep**
 - **Snow Crash** - Neal Stephenson (USA,1992) metaverse
-
+- [Schrödinger's Cat Triology](https://en.wikipedia.org/wiki/Schr%C3%B6dinger%27s_Cat_Trilogy) by *Robert Anton Wilson"* 
 
 # AFRO FUTURISM
 WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
