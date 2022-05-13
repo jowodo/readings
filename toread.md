@@ -25,6 +25,7 @@
 ## PHILOSPHY++
 - **Objectivism: The philosophy of Ayn Rand** by *Ayn Rand*
 - **The Akan Doctrine of God** by *J.B. Danquah* 
+- **Akan Traditional Religion: The Truth and the Myths** by *Kofi Bempah*
 
 ### PSYCHOLOGY
 ### ECONOMY
@@ -46,6 +47,10 @@
 
 # AFRO FUTURISM
 WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
+- *Octavia Estelle Buttler* 
+- **Dark Matter** by *Sheree R. Thomas* (2000) 
+- **Dark Matter: Reading the Bones** by Sheree R. Thomas (2004)
+- **More Brilliant than the Sun: Adventures in Sonic Fiction** by *Kwaku Eshun* (1998)
 
 ## BOOKS
 - **Lions Blood** by *Steven Barnes*, alternate history
@@ -73,6 +78,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **The civilizations of Africa a history to 1800** by *Christopher Ehret* (UK: University Press of Virginia 2002)
 - **The Oxford Handbook of african archellogy** by *Paul Lane Peter Mitchell* OUP
 - **The Miseducation of the Negro** by *Dr. Carter G. Woodson* (1933)
+- **The Invisible Man** by *Ralph Ellison* (1952)
 
 ## AFRO # Remi Tchokothe
 - *Scholastique Mukasonga* - **Cockroaches**
@@ -111,6 +117,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - Ma Rainey's Black Bottom (2020, by *August Willson* 20th century African-American experience)
 - The color purple 
 - **The Last Angle of History** by *John Akomfrah*, 1996 experimental docu by Ghanian British film maker about history and influence of afrofuturism.
+- *Wanuri Kahiu* from Kenya [films](https://en.wikipedia.org/wiki/Wanuri_Kahiu)
 
 # SCIFI MOVIES
 - **Westworld** filmf rom the seventies 
@@ -255,6 +262,9 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **The Black Man's Burden** Henry Louis Gates Jr.
 - **This Child's Gonna Live** (1969) *Sarah E. Wrigth*
 - **If We Must Die**/**Home to Harlem** (1919) *Claude McKay*
+
+# PRE PAM 
+- *Oscar Micheaux* see [wiki](https://en.wikipedia.org/wiki/Oscar_Micheaux)
 
 # Animé + Manga
 Random chat manhwa Korea webtoon.com
