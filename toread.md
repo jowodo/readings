@@ -51,6 +51,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Dark Matter** by *Sheree R. Thomas* (2000) 
 - **Dark Matter: Reading the Bones** by Sheree R. Thomas (2004)
 - **More Brilliant than the Sun: Adventures in Sonic Fiction** by *Kwaku Eshun* (1998)
+- [[https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3331295]]
 
 ## BOOKS
 - **Lions Blood** by *Steven Barnes*, alternate history
@@ -69,6 +70,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **An Unkindness of Ghosts** by *Rivers Solomon* (sustained abuse nd violence lead to? and conformity also to gender)
 - *Samuel R. Delany*
 - *Ramatoulie Bobb*
+- [*Alondra Nelson*](https://en.wikipedia.org/wiki/Alondra_Nelson)
 
 ## AFROCENTRISM 
 - **Nation Nègres et Culture** (1954) by *Cheikh Anta Diop* black origin of egyptian culture
@@ -79,6 +81,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **The Oxford Handbook of african archellogy** by *Paul Lane Peter Mitchell* OUP
 - **The Miseducation of the Negro** by *Dr. Carter G. Woodson* (1933)
 - **The Invisible Man** by *Ralph Ellison* (1952)
+- **Vénus Noire: Black Women and Colonial Fantasies in Nineteenth-Century France** by *Robin Mitchell* 
 
 ## AFRO # Remi Tchokothe
 - *Scholastique Mukasonga* - **Cockroaches**
