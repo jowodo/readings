@@ -82,6 +82,11 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **The Miseducation of the Negro** by *Dr. Carter G. Woodson* (1933)
 - **The Invisible Man** by *Ralph Ellison* (1952)
 - **Vénus Noire: Black Women and Colonial Fantasies in Nineteenth-Century France** by *Robin Mitchell* 
+- **Peau noire, masques blancs** by *Frantz Fanon* (1952)
+- **Black Power: The Politics of Liberation** by *Kwame Ture & Charles Hamilotn* (1967)
+- **Decolonizing the Mind: the Plitics of Language in African Literature** by *Ngũgĩ wa Thiong'o* (1992)
+- **The Healers** by *Ayi Kwei Armah* (1978)
+
 
 ## AFRO # Remi Tchokothe
 - *Scholastique Mukasonga* - **Cockroaches**
