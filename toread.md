@@ -86,6 +86,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Black Power: The Politics of Liberation** by *Kwame Ture & Charles Hamilotn* (1967)
 - **Decolonizing the Mind: the Plitics of Language in African Literature** by *Ngũgĩ wa Thiong'o* (1992)
 - **The Healers** by *Ayi Kwei Armah* (1978)
+- **African Mathematics: History, Textbook and Classroom Lessons** by *Robin Walker* (2014)
 
 
 ## AFRO # Remi Tchokothe
