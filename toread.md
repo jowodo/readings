@@ -25,6 +25,7 @@
 ## PHILOSPHY++
 - **Objectivism: The philosophy of Ayn Rand** by *Ayn Rand*
 - **The Akan Doctrine of God** by *J.B. Danquah* 
+- **Akan Traditional Religion: The Truth and the Myths** by *Kofi Bempah*
 
 ### PSYCHOLOGY
 ### ECONOMY
@@ -46,6 +47,11 @@
 
 # AFRO FUTURISM
 WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
+- *Octavia Estelle Buttler* 
+- **Dark Matter** by *Sheree R. Thomas* (2000) 
+- **Dark Matter: Reading the Bones** by Sheree R. Thomas (2004)
+- **More Brilliant than the Sun: Adventures in Sonic Fiction** by *Kwaku Eshun* (1998)
+- [[https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3331295]]
 
 ## BOOKS
 - **Lions Blood** by *Steven Barnes*, alternate history
@@ -64,6 +70,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **An Unkindness of Ghosts** by *Rivers Solomon* (sustained abuse nd violence lead to? and conformity also to gender)
 - *Samuel R. Delany*
 - *Ramatoulie Bobb*
+- [*Alondra Nelson*](https://en.wikipedia.org/wiki/Alondra_Nelson)
 
 ## AFROCENTRISM 
 - **Nation Nègres et Culture** (1954) by *Cheikh Anta Diop* black origin of egyptian culture
@@ -73,6 +80,14 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **The civilizations of Africa a history to 1800** by *Christopher Ehret* (UK: University Press of Virginia 2002)
 - **The Oxford Handbook of african archellogy** by *Paul Lane Peter Mitchell* OUP
 - **The Miseducation of the Negro** by *Dr. Carter G. Woodson* (1933)
+- **The Invisible Man** by *Ralph Ellison* (1952)
+- **Vénus Noire: Black Women and Colonial Fantasies in Nineteenth-Century France** by *Robin Mitchell* 
+- **Peau noire, masques blancs** by *Frantz Fanon* (1952)
+- **Black Power: The Politics of Liberation** by *Kwame Ture & Charles Hamilotn* (1967)
+- **Decolonizing the Mind: the Plitics of Language in African Literature** by *Ngũgĩ wa Thiong'o* (1992)
+- **The Healers** by *Ayi Kwei Armah* (1978)
+- **African Mathematics: History, Textbook and Classroom Lessons** by *Robin Walker* (2014)
+
 
 ## AFRO # Remi Tchokothe
 - *Scholastique Mukasonga* - **Cockroaches**
@@ -111,6 +126,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - Ma Rainey's Black Bottom (2020, by *August Willson* 20th century African-American experience)
 - The color purple 
 - **The Last Angle of History** by *John Akomfrah*, 1996 experimental docu by Ghanian British film maker about history and influence of afrofuturism.
+- *Wanuri Kahiu* from Kenya [films](https://en.wikipedia.org/wiki/Wanuri_Kahiu)
 
 # SCIFI MOVIES
 - **Westworld** filmf rom the seventies 
@@ -255,6 +271,9 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **The Black Man's Burden** Henry Louis Gates Jr.
 - **This Child's Gonna Live** (1969) *Sarah E. Wrigth*
 - **If We Must Die**/**Home to Harlem** (1919) *Claude McKay*
+
+# PRE PAM 
+- *Oscar Micheaux* see [wiki](https://en.wikipedia.org/wiki/Oscar_Micheaux)
 
 # Animé + Manga
 Random chat manhwa Korea webtoon.com
