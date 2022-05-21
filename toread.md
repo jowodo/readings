@@ -26,6 +26,7 @@
 - **Objectivism: The philosophy of Ayn Rand** by *Ayn Rand*
 - **The Akan Doctrine of God** by *J.B. Danquah* 
 - **Akan Traditional Religion: The Truth and the Myths** by *Kofi Bempah*
+- **Republic** - *Plato*
 
 ### PSYCHOLOGY
 ### ECONOMY
@@ -87,6 +88,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Decolonizing the Mind: the Plitics of Language in African Literature** by *Ngũgĩ wa Thiong'o* (1992)
 - **The Healers** by *Ayi Kwei Armah* (1978)
 - **African Mathematics: History, Textbook and Classroom Lessons** by *Robin Walker* (2014)
+- *Malcom X* 
 
 
 ## AFRO # Remi Tchokothe
