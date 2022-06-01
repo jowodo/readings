@@ -88,7 +88,30 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Decolonizing the Mind: the Plitics of Language in African Literature** by *Ngũgĩ wa Thiong'o* (1992)
 - **The Healers** by *Ayi Kwei Armah* (1978)
 - **African Mathematics: History, Textbook and Classroom Lessons** by *Robin Walker* (2014)
+- **Introduction to African Civilisations** - by *John G Jackson*
 - *Malcom X* 
+
+# BLACK ARTS MOVEMENTS (BAM)
+- **The Negro Artist and the Racial Mountain** (1926) *Langston Hughes*
+- **The Notes of a Native Son** (1955) *James Arthur Baldwin*
+- **The Chrisis of the Negro Intellectual** (1967) *Harold Cruse*
+- **Black Anglo-Saxon** (1965) *Nathan Hare*
+- **The Souls of Black Folk** (1903) *Du Bois*
+- **Song of Solomon** (1977)/**The Bluest Eye** (1970) *Toni Morrison*
+- **For Colored Girls who have considered Suicide/ when the rainbow is enuf** *Ntozake Shange*
+- **The Color Purple** (1982) *Alice Walker*
+- **The New Negro** (1925) *Alain Locke* (anthology and corner stone of Harlem Renaissance)
+- By the end of the First World War, the fiction of *James Weldon Johnson* and the poetry of 
+- *Claude McKay* were describing the reality of contemporary African-American life in America.
+- A more severe criticism of the Christian religion can be found in *Langston Hughes*' poem 
+- **"Merry Christmas"**, where he exposes the irony of religion as a symbol for good and 
+- yet a force for oppression and injustice.
+- **The Black Man's Burden** Henry Louis Gates Jr.
+- **This Child's Gonna Live** (1969) *Sarah E. Wrigth*
+- **If We Must Die**/**Home to Harlem** (1919) *Claude McKay*
+
+# PRE PAM 
+- *Oscar Micheaux* see [wiki](https://en.wikipedia.org/wiki/Oscar_Micheaux)
 
 
 ## AFRO # Remi Tchokothe
@@ -254,28 +277,6 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 
 ## SERIES
 - The man in the high castle (what would the future bring if the nazis won ww2 (40 episodes)
-
-# BLACK ARTS MOVEMENTS (BAM)
-- **The Negro Artist and the Racial Mountain** (1926) *Langston Hughes*
-- **The Notes of a Native Son** (1955) *James Arthur Baldwin*
-- **The Chrisis of the Negro Intellectual** (1967) *Harold Cruse*
-- **Black Anglo-Saxon** (1965) *Nathan Hare*
-- **The Souls of Black Folk** (1903) *Du Bois*
-- **Song of Solomon** (1977)/**The Bluest Eye** (1970) *Toni Morrison*
-- **For Colored Girls who have considered Suicide/ when the rainbow is enuf** *Ntozake Shange*
-- **The Color Purple** (1982) *Alice Walker*
-- **The New Negro** (1925) *Alain Locke* (anthology and corner stone of Harlem Renaissance)
-- By the end of the First World War, the fiction of *James Weldon Johnson* and the poetry of 
-- *Claude McKay* were describing the reality of contemporary African-American life in America.
-- A more severe criticism of the Christian religion can be found in *Langston Hughes*' poem 
-- **"Merry Christmas"**, where he exposes the irony of religion as a symbol for good and 
-- yet a force for oppression and injustice.
-- **The Black Man's Burden** Henry Louis Gates Jr.
-- **This Child's Gonna Live** (1969) *Sarah E. Wrigth*
-- **If We Must Die**/**Home to Harlem** (1919) *Claude McKay*
-
-# PRE PAM 
-- *Oscar Micheaux* see [wiki](https://en.wikipedia.org/wiki/Oscar_Micheaux)
 
 # Animé + Manga
 Random chat manhwa Korea webtoon.com
