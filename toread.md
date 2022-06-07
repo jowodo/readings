@@ -78,7 +78,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - *Ramatoulie Bobb*
 - [*Alondra Nelson*](https://en.wikipedia.org/wiki/Alondra_Nelson)
 
-## AFROCENTRISM 
+# AFROCENTRISM 
 - **Nation Nègres et Culture** (1954) by *Cheikh Anta Diop* black origin of egyptian culture
 - **Cheikh Anta Diop ou l´honneur de penser (Cheikh Anta Diop oder die Ehre des Denkens)** by *Jean Marc Ela* 
 - **Black Athena – The Afroasiatic Roots of Classical Civilizatio** by *Prof. Martin Bernal* 
@@ -95,6 +95,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **African Mathematics: History, Textbook and Classroom Lessons** by *Robin Walker* (2014)
 - **Introduction to African Civilisations** - by *John G Jackson*
 - *Malcom X* 
+- **The Egyptian Miracle** by *R. A. Schwaller de Lubicz* "an introduction to the wisodwm of the temple"
 
 # BLACK ARTS MOVEMENTS (BAM)
 - **The Negro Artist and the Racial Mountain** (1926) *Langston Hughes*
