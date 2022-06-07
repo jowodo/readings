@@ -21,6 +21,11 @@
 - **So Good They Can't Ignore You: Why Skills Trump Passion in the Quest for Work You Love Hardcover** by *Cal Newport*
 - **Outwitting the devil** - *Napoléon Hill*, I recommend think and grow rich and success through a positive mental attitude by the same author. You can download here https://b-ok.cc/s/Napoleon%20hill
 - **The 48 Laws Of Power** by *Green* [[archive]] https://archive.org/details/the48lawsofpower_201912/48%20Laws%20of%20Power%2C%20The%20-%20Robert%20Greene%3B%20Joost%20Elffers/page/n15/mode/2up
+- **The War of Art** by *Steven Pressfield* "Break Through the Blocks and Win Your Inner Creative Battles"
+- **The Dip** by *Seth Godin* "A little book that teaches you when to quit and when to stick"
+- **The Art of Possibility** by *Rosamund Stone Zander and Benjamin Zander* "Transforming Professional and Personal Life"
+- **The 4-Hour Workweek** by *Timothy Ferriss* "Escape 9-5 live anywhere and join the new rich"
+- **The Total Money Makeover** by *Dave Ramsey* 
 
 ## PHILOSPHY++
 - **Objectivism: The philosophy of Ayn Rand** by *Ayn Rand*
