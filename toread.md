@@ -22,6 +22,11 @@
 - **So Good They Can't Ignore You: Why Skills Trump Passion in the Quest for Work You Love Hardcover** by *Cal Newport*
 - **Outwitting the devil** - *Napoléon Hill*, I recommend think and grow rich and success through a positive mental attitude by the same author. You can download here https://b-ok.cc/s/Napoleon%20hill
 - **The 48 Laws Of Power** by *Green* [[archive]] https://archive.org/details/the48lawsofpower_201912/48%20Laws%20of%20Power%2C%20The%20-%20Robert%20Greene%3B%20Joost%20Elffers/page/n15/mode/2up
+- **The War of Art** by *Steven Pressfield* "Break Through the Blocks and Win Your Inner Creative Battles"
+- **The Dip** by *Seth Godin* "A little book that teaches you when to quit and when to stick"
+- **The Art of Possibility** by *Rosamund Stone Zander and Benjamin Zander* "Transforming Professional and Personal Life"
+- **The 4-Hour Workweek** by *Timothy Ferriss* "Escape 9-5 live anywhere and join the new rich"
+- **The Total Money Makeover** by *Dave Ramsey* 
 
 ## PHILOSPHY++
 - **Objectivism: The philosophy of Ayn Rand** by *Ayn Rand*
@@ -74,7 +79,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - *Ramatoulie Bobb*
 - [*Alondra Nelson*](https://en.wikipedia.org/wiki/Alondra_Nelson)
 
-## AFROCENTRISM 
+# AFROCENTRISM 
 - **Nation Nègres et Culture** (1954) by *Cheikh Anta Diop* black origin of egyptian culture
 - **Cheikh Anta Diop ou l´honneur de penser (Cheikh Anta Diop oder die Ehre des Denkens)** by *Jean Marc Ela* 
 - **Black Athena – The Afroasiatic Roots of Classical Civilizatio** by *Prof. Martin Bernal* 
@@ -91,6 +96,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **African Mathematics: History, Textbook and Classroom Lessons** by *Robin Walker* (2014)
 - **Introduction to African Civilisations** - by *John G Jackson*
 - *Malcom X* 
+- **The Egyptian Miracle** by *R. A. Schwaller de Lubicz* "an introduction to the wisodwm of the temple"
 
 # BLACK ARTS MOVEMENTS (BAM)
 - **The Negro Artist and the Racial Mountain** (1926) *Langston Hughes*
