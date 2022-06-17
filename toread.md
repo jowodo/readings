@@ -1,7 +1,8 @@
 # BOOKS I WANT TO READ
 - **Was weisse menschen nicht ueber rassismus hoeren wollen aber wissen sollten** - *Alice Haster*  
-- **Snow Crash** -  *Neal Stephenson*  
+- **Snow Crash** -  *Neal Stephenson*  #metaverse
 - **Im Grunde Gut** - Rutger Bregman #leo
+- **The Age of Spiritual Machines** - *Ray Kurzweil*
 
 ## MUSIC BOOKS
 - **Theory of Harmony**, **Counterpoint** and **Fundamentals of Composition** by *Arnold Schoenberg* - a contemporary composer, the first 2 books will give you a wealth of knowledge that can pretty soon teach how to compose entire symphonies. 
