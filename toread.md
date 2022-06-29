@@ -97,6 +97,8 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **African Mathematics: History, Textbook and Classroom Lessons** by *Robin Walker* (2014)
 - **Introduction to African Civilisations** - by *John G Jackson*
 - *Malcom X* 
+- **The Judas Factor: The Plot to Kill Malcolm X** - by *Karl Evanzz* (1992)
+- **The Messenger: The Rise and Fall of Elijah Muhammad** by - *Karl Evanzz* (1999)
 - **The Egyptian Miracle** by *R. A. Schwaller de Lubicz* "an introduction to the wisodwm of the temple"
 
 # BLACK ARTS MOVEMENTS (BAM)
