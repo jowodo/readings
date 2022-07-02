@@ -122,6 +122,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 
 # PRE PAM 
 - *Oscar Micheaux* see [wiki](https://en.wikipedia.org/wiki/Oscar_Micheaux)
+- **The Souls of Black Folk** (1903) by *W.E.B. Du Bois*
 
 
 ## AFRO # Remi Tchokothe
