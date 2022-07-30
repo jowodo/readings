@@ -52,6 +52,9 @@
 - **Electric sheep**
 - **Snow Crash** - Neal Stephenson (USA,1992) metaverse
 - [Schrödinger's Cat Triology](https://en.wikipedia.org/wiki/Schr%C3%B6dinger%27s_Cat_Trilogy) by *Robert Anton Wilson"* 
+- **fountains of paradise** - *Arthur C. CLARK*
+- **Hyperion und...** - *Dan Simmons*
+- **The world of no A** - a. E. Van vogt
 
 # AFRO FUTURISM
 WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
@@ -100,6 +103,9 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **The Judas Factor: The Plot to Kill Malcolm X** - by *Karl Evanzz* (1992)
 - **The Messenger: The Rise and Fall of Elijah Muhammad** by - *Karl Evanzz* (1999)
 - **The Egyptian Miracle** by *R. A. Schwaller de Lubicz* "an introduction to the wisodwm of the temple"
+- **L'Empire de Chaka Zoulou** - *Tidiane N'Dlaye* 
+- (**Les empires africains des origines au XXe siecle** by *Paul Lovejoy*) 
+
 
 # BLACK ARTS MOVEMENTS (BAM)
 - **The Negro Artist and the Racial Mountain** (1926) *Langston Hughes*
