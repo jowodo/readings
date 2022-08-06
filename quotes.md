@@ -12,3 +12,6 @@ South African prehistory, 1923-1953](https://journals.co.za/doi/pdf/10.10520/AJA
 **See the possibilities, not the problems** by *Karin Cheng* 
 
 **The most important and difficult is to ask the right question. The answer will f[ol]low."** by *Elon Musk* from "Dear Moon Anouncement"
+
+**Zeige dich wie du bist oder sei wie du dich zeigst** by *Jalal al-Din Muhammad Rumi*
+

@@ -3,6 +3,7 @@
 - **Snow Crash** -  *Neal Stephenson*  #metaverse
 - **Im Grunde Gut** - Rutger Bregman #leo
 - **The Age of Spiritual Machines** and **The Age of Inteligent Machines**- *Ray Kurzweil*
+- **Story Worthy** by *Matthew Dicks* 
 
 
 ## MUSIC BOOKS
