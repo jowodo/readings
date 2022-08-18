@@ -29,6 +29,7 @@
 - **The Art of Possibility** by *Rosamund Stone Zander and Benjamin Zander* "Transforming Professional and Personal Life"
 - **The 4-Hour Workweek** by *Timothy Ferriss* "Escape 9-5 live anywhere and join the new rich"
 - **The Total Money Makeover** by *Dave Ramsey* 
+- **What We Owe the Future** by *William MacAskill* 
 
 ## PHILOSPHY++
 - **Objectivism: The philosophy of Ayn Rand** by *Ayn Rand*
