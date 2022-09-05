@@ -107,6 +107,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **The Egyptian Miracle** by *R. A. Schwaller de Lubicz* "an introduction to the wisodwm of the temple"
 - **L'Empire de Chaka Zoulou** - *Tidiane N'Dlaye* 
 - (**Les empires africains des origines au XXe siecle** by *Paul Lovejoy*) 
+- **Americanah** by *Chimamanda Ngozi Adichie* (can be found at AfriEurotext)
 
 
 # BLACK ARTS MOVEMENTS (BAM)
