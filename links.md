@@ -1,0 +1,1 @@
+- why (if) could [Dahomey](https://en.wikipedia.org/wiki/Dahomey) resiste colonialisation and [Asanti](https://en.wikipedia.org/wiki/Asante_people) not (see [Anglo-Asanti wars](https://en.wikipedia.org/wiki/Anglo-Ashanti_wars)? 
