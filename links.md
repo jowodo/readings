@@ -1,1 +1,9 @@
 - why (if) could [Dahomey](https://en.wikipedia.org/wiki/Dahomey) resiste colonialisation and [Asanti](https://en.wikipedia.org/wiki/Asante_people) not (see [Anglo-Asanti wars](https://en.wikipedia.org/wiki/Anglo-Ashanti_wars)? 
+- https://en.wikipedia.org/wiki/Postcolonialism
+- https://en.wikipedia.org/wiki/L%C3%A9opold_S%C3%A9dar_Senghor
+- https://en.wikipedia.org/wiki/Ogun
+- https://en.wikipedia.org/wiki/Kwasi_Wiredu
+- https://www.sciencedirect.com/science/article/pii/S000437029700043X
+- https://www.tandfonline.com/doi/abs/10.1080/00401706.1968.10490535
+- https://link.springer.com/article/10.1186/s40537-018-0143-6
+- https://wires.onlinelibrary.wiley.com/doi/abs/10.1002/wics.27
