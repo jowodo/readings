@@ -7,3 +7,20 @@
 - https://www.tandfonline.com/doi/abs/10.1080/00401706.1968.10490535
 - https://link.springer.com/article/10.1186/s40537-018-0143-6
 - https://wires.onlinelibrary.wiley.com/doi/abs/10.1002/wics.27
+- https://fr.wikipedia.org/wiki/Rapport_Sarr-Savoy_sur_la_restitution_du_patrimoine_culturel_africain
+- https://en.wikipedia.org/wiki/Report_on_the_restitution_of_African_cultural_heritage
+- https://yewtu.be/watch?v=hsa6_g54OHY&listen=false
+- https://autolingual.com/arabic-alphabet/ and https://autolingual.com/how-i-learn-arabic/
+- https://www.spektrum.de/news/smalltalk-beeinflusst-strategische-interaktionen/2053209
+- https://yewtu.be/search?q=Okyerema+Asante
+- https://www.kqed.org/arts/11523994/repeat-after-me-its-normal-to-play-the-same-song-over-and-over-again
+- https://github.com/francisrstokes/githublog/blob/main/2022/6/15/rolling-your-own-crypto-aes.md
+- https://superamit.substack.com/p/short-stories-how-much-do-you-make
+- https://www.tor.com/2022/06/01/india-world-amit-gupta/
+- https://en.wikipedia.org/wiki/Al-Andalus
+- https://de.wikipedia.org/wiki/Andalusien
+- https://labs.openai.com/sc/w3Q8nqVN69qkEA3ePSmrGb5t 
+- https://ssrn.com/abstract=3331295
+- https://stackoverflow.com/questions/37831862/bash-eof-redirect-how-it-works
+- https://www.mailhardener.com/kb/hardening-unused-domains
+- https://yewtu.be/watch?v=GimCcrwYxdE&listen=false orcas
