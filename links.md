@@ -24,3 +24,4 @@
 - https://stackoverflow.com/questions/37831862/bash-eof-redirect-how-it-works
 - https://www.mailhardener.com/kb/hardening-unused-domains
 - https://yewtu.be/watch?v=GimCcrwYxdE&listen=false orcas
+- https://en.m.wikipedia.org/wiki/Bell_pattern
