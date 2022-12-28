@@ -25,3 +25,26 @@
 - https://www.mailhardener.com/kb/hardening-unused-domains
 - https://yewtu.be/watch?v=GimCcrwYxdE&listen=false orcas
 - https://en.m.wikipedia.org/wiki/Bell_pattern
+- https://www.kernel.org/doc/html/v4.16/driver-api/basics.html
+- https://littleosbook.github.io/
+- https://writings.stephenwolfram.com/2022/06/alien-intelligence-and-the-concept-of-technology/
+
+- https://academic.oup.com/afraf/article-abstract/81/324/440/156393?redirectedFrom=fulltext corpus of early arabic sources for west african history
+- https://en.wikipedia.org/wiki/Akan_religion
+- https://en.wikipedia.org/wiki/Nyankapon-Nyame-Odomankoma
+- https://en.wikipedia.org/wiki/Asase_Ya/Afua
+- https://yen.com.gh/109014-adinkra-symbols-and-their-meanings.html
+- https://them.polylog.org/2/fwk-en.htm - Kwasi Wiredu - Democracy and Consensus in African Traditional Politics - A Plea for a Non-party Polity
+- https://en.wikipedia.org/wiki/Kwame_Gyekye 
+- https://en.wikipedia.org/wiki/Kwasi_Wiredu
+- https://www.jstor.org/site/heritage/africa/ashanti-stool-histories/?acc=off
+- https://www.jstor.org/stable/3814101 History in the Oral Traditions of the Akan
+Kwame Y. Daaku
+- https://www.jstor.org/stable/41405792 ASHANTI BUREAUCRACY: A STUDY OF THE GROWTH OF CENTRALIZED ADMINISTRATION IN ASHANTI 
+- https://www.jstor.org/stable/23076645 THE ASANTE PRAISE POEMS
+- https://www.jstor.org/stable/221171 Spirituality, Gender, and Power in Asante History
+- https://ehrafworldcultures.yale.edu/cultures/fe12/documents/054 Techiman-Bono 
+- https://ehrafworldcultures.yale.edu/cultures/fe12/documents/029 the akan of ghana
+- https://catalogue.nla.gov.au/Search/Home?lookfor=subject:%22Akan%20%28African%20people%29%22&iknowwhatimean=1
+- https://www.cambridge.org/core/journals/africa/article/abs/ethnohistory-and-the-akan-of-ghana/5420DFF5C76F50EC8FDC3570C4076610 
+- https://www.cambridge.org/core/journals/africa/article/abs/culture-of-akan/7E7FCCD9800AAC6A258CCA15D5FA60E8 
