@@ -30,6 +30,7 @@
 - **The 4-Hour Workweek** by *Timothy Ferriss* "Escape 9-5 live anywhere and join the new rich"
 - **The Total Money Makeover** by *Dave Ramsey* 
 - **What We Owe the Future** by *William MacAskill* 
+- **Think Straight** - by *Darius Foroux*
 
 ## PHILOSPHY++
 - **Objectivism: The philosophy of Ayn Rand** by *Ayn Rand*
@@ -55,7 +56,7 @@
 - **Snow Crash** - Neal Stephenson (USA,1992) metaverse
 - [Schrödinger's Cat Triology](https://en.wikipedia.org/wiki/Schr%C3%B6dinger%27s_Cat_Trilogy) by *Robert Anton Wilson"* 
 - **fountains of paradise** - *Arthur C. CLARK*
-- **Hyperion und...** - *Dan Simmons*
+- **Hyperion** - *Dan Simmons*
 - **The world of no A** - a. E. Van vogt
 
 # AFRO FUTURISM
@@ -108,6 +109,9 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **L'Empire de Chaka Zoulou** - *Tidiane N'Dlaye* 
 - (**Les empires africains des origines au XXe siecle** by *Paul Lovejoy*) 
 - **Americanah** by *Chimamanda Ngozi Adichie* (can be found at AfriEurotext)
+- **The Palm-Wine Drinkard** by *Amos Tutuola*
+- **I Am Rosa Parks** by Rosa Parks, James Haskins, Wil Clay
+- **Ovonramwen Nogbaisi: A Historical play** - *Ola Rotimi*
 
 
 # BLACK ARTS MOVEMENTS (BAM)
@@ -157,8 +161,6 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 ### PAPERS & AUTHORS
 - *Alondra Nelson* (Anthropologist)
 - *Koto Asian*
-
-
 
 ## MOVIES 
 - *Berry Jenkins* (black)
@@ -227,6 +229,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **A Clockwork Orange** (1971)
 - **The Prestige** (2006) Director: Christpher Nolan
 - **Interstellar** (2014) Director: Christpher Nolan
+
 ## SURPRESSION
 - **The Hunger Games** (2012)
 - **Fahrenheit 451** (1966) *Ray Bradbury*
@@ -234,6 +237,7 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 - **Brazil** (1985)
 - **Alphaville** (1965)
 - **Metropolis** (1927) Director: Fritz Lang
+
 ## ALTERED HUMAN EXPERIENCE/ CONCIOUSNESS
 - **Strange Days** (1995) we can share memories
 - **Altered States** (1980)
@@ -301,6 +305,8 @@ WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
 # Animé + Manga
 Random chat manhwa Korea webtoon.com
 Tomodachi game manga mangahere.com mangakakalot.com [scrollen]
+[secret of blue water](https://en.wikipedia.org/wiki/Nadia:_The_Secret_of_Blue_Water)
+[mind game](https://www.imdb.com/title/tt0452039/)
 
 ## ARTICLES
 - **Facebook's Meta mission was laid out in a 2018 paper declaring 'The Metaverse is ours to lose'** - Salvador Rodriguez
