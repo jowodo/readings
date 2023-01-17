@@ -48,3 +48,8 @@ Kwame Y. Daaku
 - https://catalogue.nla.gov.au/Search/Home?lookfor=subject:%22Akan%20%28African%20people%29%22&iknowwhatimean=1
 - https://www.cambridge.org/core/journals/africa/article/abs/ethnohistory-and-the-akan-of-ghana/5420DFF5C76F50EC8FDC3570C4076610 
 - https://www.cambridge.org/core/journals/africa/article/abs/culture-of-akan/7E7FCCD9800AAC6A258CCA15D5FA60E8 
+- https://yewtu.be/watch?v=lPonCaDKaEc akan mythology in french
+- https://yewtu.be/watch?v=PrbxahkNO6w chimamande ngozi adichie on storytelling
+- https://academicworks.cuny.edu/gc_etds/1817/ baule
+- https://en.wikipedia.org/wiki/Pharaoh
+- https://thirdworldtraveler.com/Third_World/ThirdWorld_MParenti_CN.html
