@@ -318,3 +318,4 @@ Tomodachi game manga mangahere.com mangakakalot.com [scrollen]
 - **Kritik der reinen Vernunft** by *Immanuel Kant* (1781)
 - **Traité élémentaire de chimie** by *Antoine Lavoisier* (1789)
 - **On the Origin of Species** by Charles Darwin (1859)
+- **Frozen Star. of Pulsars, Black Holes and the Fate of Stars** by *George Greenstein* 
