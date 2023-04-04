@@ -53,3 +53,8 @@ Kwame Y. Daaku
 - https://academicworks.cuny.edu/gc_etds/1817/ baule
 - https://en.wikipedia.org/wiki/Pharaoh
 - https://thirdworldtraveler.com/Third_World/ThirdWorld_MParenti_CN.html
+- https://www.spektrum.de/news/bitcoin-die-debatte-um-die-kryptowaehrung-ist-entgleist/2067687
+- https://www.spektrum.de/podcast/die-zeitumstellung/2071713
+- https://www.spektrum.de/kolumne/mathematik-ist-viel-mehr-als-nur-rechnen/2081643
+- https://www.spektrum.de/news/palaeontologie-evolution-der-voegel-muss-umgeschrieben-werden/2083359
+- https://www.spektrum.de/news/wellness-schwitzen-in-der-sauna-ist-gut-fuer-die-gesundheit/2037751
