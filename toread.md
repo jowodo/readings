@@ -58,6 +58,7 @@
 - **fountains of paradise** - *Arthur C. CLARK*
 - **Hyperion** - *Dan Simmons*
 - **The world of no A** - a. E. Van vogt
+- **Venumous Lumpsucker** by *Ned Beauman* see https://www.penguinrandomhouse.com/books/709614/venomous-lumpsucker-by-ned-beauman/
 
 # AFRO FUTURISM
 WestAfrica-Mali-Dogon-amphibian aliens told them about sirius b and the universe
