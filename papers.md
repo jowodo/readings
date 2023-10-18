@@ -50,3 +50,7 @@ and classification: Setswana and Sepedi](https://arxiv.org/abs/2003.04986)
 - [True Bilingual NMT](https://openreview.net/forum?id=SAGNK9ME8Wc)
 - [An Exploration of Vocabulary Size and Transfer Effects in Multilingual Language Models for African Languages](https://openreview.net/forum?id=HOZmF9MV8Wc)
 - [Participatory Research for Low-resourced Machine Translation: A Case Study in African Languages](https://aclanthology.org/2020.findings-emnlp.195/)
+
+Further NLP
+------------
+- [Joey NMT: A Minimalist NMT Toolkit for Novices](https://arxiv.org/abs/1907.12484)
